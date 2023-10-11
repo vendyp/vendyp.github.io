@@ -1,1 +1,0 @@
-# vendyp.github.io
